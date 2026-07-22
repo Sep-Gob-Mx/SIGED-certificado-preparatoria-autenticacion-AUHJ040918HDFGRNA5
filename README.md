@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-AUHJ040918HDFGRNA5
+AUHJ040918HDFGRNA5
